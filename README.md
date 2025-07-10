@@ -10,4 +10,4 @@
 
 这些平台汇集了丰富的美国一级大黄一片免费视频资源，内容多样，更新及时，分类清晰，方便用户快速查找。每个视频页面均含影片时长、主演、清晰度等详细信息，支持高清播放，并根据网络环境自动优化画质，保障流畅观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/trua20250710/trua4 ）</span>
